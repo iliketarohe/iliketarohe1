@@ -26,3 +26,5 @@ https://shimingka.top
 
 接码：
 https://kuaijiema.top
+
+<img src="pic/bbb.png" alt="Omiai账号购买" border="0">
